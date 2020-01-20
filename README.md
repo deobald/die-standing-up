@@ -82,6 +82,11 @@ Self-experiment itself, of course, lives on a spectrum as well: On one end, we h
 - jet lag
 - coffee, caffeine, etc.
 
+## Phones, TV, Movies, Books
+
+- read more
+- be on the phone less (obvs)
+
 ## Exercise
 
 - (A) Find Inspiration (B) Find Systems
